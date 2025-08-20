@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dani2237.
 - 👀 I’m interested in exploring.
 - 🌱 I’m currently learning new things i might never be forgetting.
-- 📫 How to reach me: You can reach me through my e-mail ("or through my discord server").
+- 📫 How to reach me: You can reach me through my e-mail ("or through Discord - dani2237").
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I don't got funfacts i only got normal facts. (sometimes they are fun)
